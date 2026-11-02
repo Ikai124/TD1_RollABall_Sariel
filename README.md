@@ -69,7 +69,7 @@ L'équilibriste, depuis qu'il est jeune il a toujours rêver de faire de l'équi
 
 __ DA __
 
-Neon, cirque, cartoon, drole, couleur primaires
+Neon, cirque, cartoon, drole, couleur primaires et secondaires
 
 
 
